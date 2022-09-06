@@ -1,6 +1,6 @@
 # Christian Hinkle
 
-<img src="https://avatars.githubusercontent.com/u/51057429" width="128"/>
+<img src="https://avatars.githubusercontent.com/u/51057429" width="15%"/>
 
 Phone: (704)891-2050
 
