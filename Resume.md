@@ -46,6 +46,7 @@ Desktop Applications
 
 ## Community Activities and Service
 **Puerto Rico 2018** - Mission trip with Church at Cane Bay for assistance in reconstruction after hurrican Maria
+
 **Puerto Rico 2019** - Mission trip with Church at Cane Bay for revisiting and completing reconstruction of the BCA Christian school
 
 
